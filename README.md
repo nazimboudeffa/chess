@@ -10,4 +10,4 @@ You can ping me or one of my alts on [Discord](https://discord.gg/EpZTKMb), I'll
 
 Please read the books, and keep a good working mind
 
-![Queen's Gambit]([img]https://i.imgur.com/h2GryQz.png)
+![Queen's Gambit](https://i.imgur.com/h2GryQz.png)
