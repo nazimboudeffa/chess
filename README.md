@@ -14,4 +14,4 @@ I am bad at chess, really bad ! Don't waste your time playing with me, because I
 
 Please read the books, and keep a good working mind
 
-![Queen's Gambit](https://i.imgur.com/h2GryQz.png)
+![[Queen's Gambit](https://i.imgur.com/h2GryQz.png)](https://www.imdb.com/title/tt10048342)
