@@ -9,3 +9,5 @@ You can ping me or one of my alts on [Discord](https://discord.gg/EpZTKMb), I'll
 * https://www.goodreads.com/book/show/85192.Attacking_Chess
 
 Please read the books, and keep a good working mind
+
+![](https://imgur.com/a/Dna8mCJ)
