@@ -16,6 +16,6 @@ Please read the books, and keep a good working mind
 
 [![Queen's Gambit](https://i.imgur.com/h2GryQz.png)](https://www.imdb.com/title/tt10048342)
 
-# BTW
+# FYI
 
 You can ping me or one of my alts on [Discord](https://discord.gg/EpZTKMb) and send me the corresponding game link, I'll play with you if am available (which is probably not the case) and I will also probably only play the PGN available on this repo otherwise, please DO NOT ping me
