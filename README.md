@@ -10,7 +10,7 @@ Then play against the computer
 
 ## YouTube
 
-* https://www.youtube.com/watch?v=Inmcb_k7dig (Queen's Gambit Analyses)
+* https://www.youtube.com/watch?v=Inmcb_k7dig (Queen's Gambit Serie Analyses)
 
 Please read the books, and keep a good working mind
 
