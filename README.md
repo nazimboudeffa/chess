@@ -4,9 +4,15 @@ To use this repo, go to Lichess.org, click on tools>import a game, then, copy pa
 
 Then play against the computer
 
-# Books
+# Books and YouTube Channels
+
+## Books
 
 * https://www.goodreads.com/book/show/85192.Attacking_Chess
+
+## YouTube
+
+* https://www.youtube.com/watch?v=Inmcb_k7dig (Queen's Gambit Analyses)
 
 Please read the books, and keep a good working mind
 
