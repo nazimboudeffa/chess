@@ -7,6 +7,7 @@ Then play against the computer
 ## Books
 
 * https://www.goodreads.com/book/show/85192.Attacking_Chess
+* https://www.goodreads.com/book/show/7239582-kasparov-teaches-chess
 
 ## YouTube
 
