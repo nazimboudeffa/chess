@@ -13,3 +13,5 @@ Josh me fascine car il sait écrire et sait mettre ses idées sur un bouquin, lu
 Quand je lis son livre je trouves que tout ce qu'il dit concernant les outils est juste parfait, le coup d'échec sur la première ligne est juste parfait, il fallait le voir
 
 Bizarrement je discutes avec des potes du quartier qui jouent au poker en ligne et je me suis mis au Blackjack du coup les échecs m'ont donné envie de lire sur ce jeu et de comprendre la stratégie, du coup avec l'arrivée des bitcoins sur le marché j'ai décidé de jouer en ligne pour apprendre
+
+Je me souviens encore de l'imam qui nous dis que les échecs c'est comme les jeux d'argent et que c'est haram, c'est pour ça que j'ai un blocage pour y jouer
