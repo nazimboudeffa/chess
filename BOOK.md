@@ -1,4 +1,4 @@
-# Comment j'ai appris les échecs
+# Comment j'apprends les échecs
 
 Comme vous le voyez sur ce repository j'ai fais la liste de quelques livres dont les auteurs me fascinent comme Josh, je regardes des films, des vidéos sur YT et j'apprends
 
