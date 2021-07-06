@@ -24,4 +24,8 @@ Bizarrement je discutes avec des potes du quartier qui jouent au poker en ligne 
 
 Etant originalire d'une religion comme l'islam j'ai joué mes premiers DOGES sur STAKE.COM pendant la coupe d'Europe 2021 en plein COVID et en pleine dépression générale
 
+En une soirée pour fêter la victoire de l'Italie (même si j'ai parié contre parce que je penses que la France a perdu à cause des paris en ligne) j'ai perdu plus d'1 DOGE ce qui est beaucoup quand on voit le BITCOIN
+
+![](pertes.jpg)
+
 
