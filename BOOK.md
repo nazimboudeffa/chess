@@ -19,3 +19,9 @@ Je me souviens encore de l'imam qui nous dis que les échecs c'est comme les jeu
 J'ai cherché multiples moyens de changer de religion pour pouvoir faire des choses et le dudism est ce qu'il me fallait sauf que parfois j'ai l'impression de discuter avec un groupe d'lacooliques anonymes
 
 Bizarrement je discutes avec des potes du quartier qui jouent au poker en ligne et je me suis mis au Blackjack du coup les échecs m'ont donné envie de lire sur ce jeu et de comprendre la stratégie, du coup avec l'arrivée des bitcoins sur le marché j'ai décidé de jouer en ligne pour apprendre
+
+## Pourquoi un blocage
+
+Etant originalire d'une religion comme l'islam j'ai joué mes premiers DOGES sur STAKE.COM pendant la coupe d'Europe 2021 en plein COVID et en pleine dépression générale
+
+
