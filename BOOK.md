@@ -28,4 +28,6 @@ En une soirée pour fêter la victoire de l'Italie (même si j'ai parié contre 
 
 ![](pertes.jpg)
 
+Alors ce que l'on cherche à comprendre c'est pourquoi Abu Taleb a décidé que les échecs étaient comme un jeu d'argent et pourquoi il y a ce blocage chez moi qui ne me permet pas d'exploiter à 100% mes capacités intellectuelles afin d'être un bon joeur d'échecs
+
 
