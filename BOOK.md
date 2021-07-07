@@ -41,3 +41,5 @@ Le fait d'avoir choisis une religion comme le Dudeism aide à comprendre la bipo
 ## Le calcul mental
 
 Parmis les problèmes auquels je dois faire face c'est la drogue et l'alcool qui sont permit dans ma nouvelle religion et qui du coup ne me permettent pas d'avoir un esprit clair mais j'ai gagné le fait de pouvoir jouer aux échecs et sur les casinos en ligne, ce qui est compréhensible d'un point de vue taoisite c'est juste un équilibre on a rien sans rien
+
+Le choix d'une nouvelle religion doit permettre de vivre heureux et d'avoir plus de libertés, non pas le contraire sinon je ne vois aucun interet sinon les femmes
