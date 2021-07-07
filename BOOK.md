@@ -35,3 +35,5 @@ Ceci a été le cas pendant toute mon enfance et même aujourd'hui je n'arrive p
 Ceci dit le jeu d'échecs n'est pas comme les jeux d'argents certes mais c'est comme si et pourquoi ça l'est 
 
 C'est ce qu'on va voir dans ce livre et comment dépasser ce blocage par exemple en se mettant des budgets et ne pas les dépasser comme pour la coupe d'Europe 2021 sans compter les erreurs dû à la mauvaise influence du diable qui du coup on comprend qu'il est en chacun de nous même si Dieu ne l'est pas
+
+Le fait d'avoir choisis une religion comme le Dudeism aide à comprendre la bipolarité entre le bien et le mal en chacun de nous car nous nous interdisons à la base dans ma religion par defaut d'incarner Dieu donc le bien
