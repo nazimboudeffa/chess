@@ -28,6 +28,10 @@ En une soirée pour fêter la victoire de l'Italie (même si j'ai parié contre 
 
 ![](pertes.jpg)
 
-Alors ce que l'on cherche à comprendre c'est pourquoi Abu Taleb a décidé que les échecs étaient comme un jeu d'argent et pourquoi il y a ce blocage chez moi qui ne me permet pas d'exploiter à 100% mes capacités intellectuelles afin d'être un bon joeur d'échecs
+Alors ce que l'on cherche à comprendre c'est pourquoi Abu Taleb a décidé que les échecs étaient comme un jeu d'argent et pourquoi il y a ce blocage chez moi qui ne me permet pas d'exploiter à 100% mes capacités intellectuelles afin d'être un bon joueur d'échecs
 
+Ceci a été le cas pendant toute mon enfance et même aujourd'hui je n'arrive pas à dépasser ce blocage
 
+Ceci dit le jeu d'échecs n'est pas comme les jeux d'argents certes mais c'est comme si et pourquoi ça l'est 
+
+C'est ce qu'on va voir dans ce livre et comment dépasser ce blocage par exemple en se mettant des budgets et ne pas les dépasser comme pour la coupe d'Europe 2021 sans compter les erreurs dû à la mauvaise influence du diable qui du coup on comprend qu'il est en chacun de nous même si Dieu ne l'est pas
