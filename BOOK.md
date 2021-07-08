@@ -45,3 +45,9 @@ Parmis les problèmes auquels je dois faire face c'est la drogue et l'alcool qui
 Le choix d'une nouvelle religion doit permettre de vivre heureux et d'avoir plus de libertés, non pas le contraire sinon je ne vois aucun interet sinon les femmes
 
 En ce moment je prends des cafés dehors et demain je ne vais pas le faire pour rembourser les pertes en DOGE d'aujourd'hui alors que tout le monde fête la victoire de l'Italie
+
+# Apprenons à jouer à ce jeu
+
+Lire des livres théoriques c'est bien mais on se lasse vite car on ne fait que travailler la mémoire d'apprentissage sans activer la mémoire épisodique
+
+J'ai commencé sur chesscom à jouer aux échecs et j'apprécie le fait d'avoir un compte bidon, ça permet d'apprendre sans que l'adversaire ne saache qui je suis
