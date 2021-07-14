@@ -53,3 +53,5 @@ En ce moment je prends des cafés dehors et demain je ne vais pas le faire pour 
 Lire des livres théoriques c'est bien mais on se lasse vite car on ne fait que travailler la mémoire d'apprentissage sans activer la mémoire épisodique
 
 J'ai commencé sur chesscom à jouer aux échecs et j'apprécie le fait d'avoir un compte bidon, ça permet d'apprendre sans que l'adversaire ne saache qui je suis
+
+Je me suis toujours demandé si c'est prendre des pièces ou attacker la reine en premier qui compte le plus
