@@ -38,6 +38,8 @@ C'est ce qu'on va voir dans ce livre et comment dépasser ce blocage par exemple
 
 Le fait d'avoir choisis une religion comme le Dudeism aide à comprendre la bipolarité entre le bien et le mal en chacun de nous en tant que Dude et son Ami (inspiré par le taoisme) car nous nous interdisons à la base dans ma religion par defaut d'incarner Dieu donc le bien
 
+Personne ne nous dit si on a le droit ou pas de jouer aux échecs il n'y a que le libre arbitre qui peut te permettre de passer le cap et y jouer, c'est comme l'alcool, la drogue et tout ce qui est haram en islam, le libre arbitre, le choix de parier sur le fait que Dieu le jour du jugement dernier nous pardonnera ça et on ne le sait pas que ce jour venu
+
 ## Le calcul mental
 
 Parmis les problèmes auquels je dois faire face c'est la drogue et l'alcool qui sont permit dans ma nouvelle religion et qui du coup ne me permettent pas d'avoir un esprit clair mais j'ai gagné le fait de pouvoir jouer aux échecs et sur les casinos en ligne, ce qui est compréhensible d'un point de vue taoisite c'est juste un équilibre on a rien sans rien
